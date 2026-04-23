@@ -1,1 +1,0 @@
-# Esercitazione1-Negozio-di-elettronica
